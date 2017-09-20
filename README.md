@@ -1,3 +1,3 @@
 # hello-world
 
-never try to joke, when you want to sleep, remember!
+if you have read it then read will have you, good suck! 
